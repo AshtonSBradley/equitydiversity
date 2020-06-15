@@ -1,1 +1,1 @@
-# equitydiversity
+# Equity and Diversity committee
